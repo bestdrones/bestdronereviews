@@ -5,7 +5,7 @@ It's been a few weeks since the DJI Phantom 4 has been released, but DJI enthusi
 
 ### The DJI Phantom 3 Standard Has A Lower Price! ###
 
-The **Phantom 3** is the perfect drone for just about anyone. It's super easy to fly, yet has all the advanced features that you'd expect from a DJI drone. 
+The **[Phantom 3](http://amzn.to/1UYSDaH "Phantom 3 On Amazon.com")** is the perfect drone for just about anyone. It's super easy to fly, yet has all the advanced features that you'd expect from a [DJI](http://www.dji.com/ "DJI Global Official Site") drone. 
 
 The **Onboard 2.7K Camera** is mounted to a gimbal for the smoothest video and crispest still images, and with it's tilt feature that you control from the controller, **you can always get the shot you want.**
 
